@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Aventurine-supremacy / Yukima! 
+- 👀 I’m interested in Genshin, Honkai, Black Butler, FNaF, Demon Slayer, etc
+- 😄 Pronouns: She/They + He/They
+- ⚡ Fun fact: I like to read and write + draw
